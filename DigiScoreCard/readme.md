@@ -1,0 +1,1 @@
+Digital Scorecard of Gartner
